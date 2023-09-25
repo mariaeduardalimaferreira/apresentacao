@@ -4,7 +4,7 @@
  
  _Sou natural de São Paulo, porém, vim morar no Paraná com 3 meses de vida_
  
- **Faço aniversário no dia 20/03-meu signo é peixes**
+ **Faço aniversário no dia 20/03-**
  
    ~~Meus hoobs favoritos inclui:~~
     
